@@ -1,3 +1,3 @@
-# other
-##FY私人记事
+# FY私人记事
+
 >ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpwNTUzWUw4NDg3eEhANDUuMTUzLjIzMS41Njo0NDM=#45.153.231.56:443
